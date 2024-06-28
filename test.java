@@ -1,1 +1,1 @@
-java code is java code 
+java code is java code
