@@ -1,3 +1,1 @@
-iam niranja reddy
-img sed 
-  del 
+iam niranjan reddy 
