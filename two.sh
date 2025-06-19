@@ -1,2 +1,7 @@
 iam niranjan reddy 
-ok 
+ok this is 
+oh fine
+wellcome
+bugfix"2"
+d2
+hello every one 
